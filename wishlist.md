@@ -7,3 +7,6 @@
 ## Wishlist  / Reading list
 [Generative AI with LangChain: Build large language model (LLM) apps with Python, ChatGPT, and other LLMs](https://www.amazon.com/Generative-AI-LangChain-language-ChatGPT/dp/1835083463?link_from_packtlink=yes)
 [https://lawsofux.com/](https://lawsofux.com/)
+[The Bezos Letters: 14 Principles to Grow Your Business Like Amazon](https://www.amazon.co.uk/Bezos-Letters-Principles-Business-Amazon/dp/1529384796)
+Self-Awareness : Emotional Intelligence, by  Harvard Business Review (HBR);
+Crucial Conversations : Tools for Talking When Stakes Are High
