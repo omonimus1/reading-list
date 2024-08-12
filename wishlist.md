@@ -8,6 +8,8 @@
 - [Crucial Conversations : Tools for Talking When Stakes Are High](https://www.amazon.com/Crucial-Conversations-Talking-Stakes-Second/dp/1469266822)
 - [Thinking fast and slow ](https://www.goodreads.com/book/show/11468377-thinking-fast-and-slow)
 
+- https://sensible.com/dont-make-me-think/
+
 
 ## Articles to read 
 - [How to make small changes for big impacts](https://www.forbes.com/sites/financialfinesse/2021/07/12/how-to-make-small-changes-for-big-impacts/?sh=711480c0401b)
