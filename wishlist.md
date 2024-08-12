@@ -10,6 +10,9 @@
 
 - https://sensible.com/dont-make-me-think/
 
+![telegram-cloud-photo-size-4-5877494747386463397-y](https://github.com/user-attachments/assets/7a960604-9a58-4b91-b430-2aa1106c5392)
+
+
 
 ## Articles to read 
 - [How to make small changes for big impacts](https://www.forbes.com/sites/financialfinesse/2021/07/12/how-to-make-small-changes-for-big-impacts/?sh=711480c0401b)
