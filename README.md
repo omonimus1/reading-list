@@ -10,6 +10,6 @@ See my [wishlist for future reads](wishlist.md)
 - [The Magic of Thinking Big, by David J.Schwartz](https://www.amazon.com/Magic-Thinking-Big-David-Schwartz/dp/1897384424/ref=sr_1_5?crid=1RIYTVK7WFALC&keywords=the+art+of+thinking+big&qid=1703682998&s=books&sprefix=the+art+of+thinkng+bi%2Cstripbooks-intl-ship%2C172&sr=1-5)
 - [What Got You Here Won't Get You There: How Successful People Become Even More Successful ](https://www.amazon.com/What-Got-Here-Wont-There/dp/0739342231)
 - [Zero to one](https://www.amazon.com/Zero-One-Notes-Startups-Future/dp/0804139296/ref=sr_1_1?crid=1J0E7W0SHDI05&dib=eyJ2IjoiMSJ9.OPyU8uSaSLjKaBb-898flOP0HrBVJ-7d532ozEXyVCoJeTatyuQn7tAAaR5H6r5ws2YUL54UUUC3PHy1FoEW6S_VULtDOsSxbjwRF9rbU6yqDayGXbD2tJ_Rymm-masB8PovL1HKMbcRomVWAhGnCUIp6IBMjjMCk9eTMUSh0dO-CHh_JXJv9Nq9r-JOPlvzmS1RsqsyGgaFgjjtCEZz0qWMWeA9iccRokiKDm9GlkQ.c8q9ObTph8tXVJI0zs1h1anTwdAr8koTbTNe7jdutsg&dib_tag=se&keywords=zero+to+one&qid=1723487282&s=books&sprefix=zero+to+one%2Cstripbooks-intl-ship%2C171&sr=1-1)
-
+- [Million dollar weekend](https://www.nejlevnejsi-knihy.cz/kniha/million-dollar-weekend_44203401.html?msclkid=fd32fd6bbd811822774b9bd1e9536ae8&utm_source=bing&utm_medium=cpc&utm_campaign=DSA%20all_bing&utm_term=%2Fkniha%2F&utm_content=URL%20obsahuje%20%22kniha%22)
 ## 2023 (considering from 25th of Dec onwards)
 - [A beginner guide to the stock market, by Matthew R. Kratter](https://www.amazon.com/Beginners-Guide-Stock-Market-Everything/dp/1099617200)
