@@ -14,7 +14,7 @@ the selfish gene
 titan by ron chernow
 the warren buffet portfolio
 the wealth and poverty nations
-
+yes, book
 
 - [Generative AI with LangChain: Build large language model (LLM) apps with Python, ChatGPT, and other LLMs](https://www.amazon.com/Generative-AI-LangChain-language-ChatGPT/dp/1835083463?link_from_packtlink=yes)
 - [https://lawsofux.com/](https://lawsofux.com/)
