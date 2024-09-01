@@ -1,5 +1,19 @@
 ## Wishlist  
 
+the blind watchmaker
+damn right behind the scenes with berkshaire nathaway billionare charlie munger
+deep simplicity
+genome by matt ridley
+guns, germs and steel by jared diamond
+how the scots built the modern world
+ice age john and mary chibin
+influece the phicology of persuasion robert b cialidini phd
+judgement in managerial decision making 
+master of the game by connie bruck
+the selfish gene
+titan by ron chernow
+the warren buffet portfolio
+the wealth and poverty nations
 
 
 - [Generative AI with LangChain: Build large language model (LLM) apps with Python, ChatGPT, and other LLMs](https://www.amazon.com/Generative-AI-LangChain-language-ChatGPT/dp/1835083463?link_from_packtlink=yes)
